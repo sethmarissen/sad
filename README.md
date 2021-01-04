@@ -1,2 +1,1 @@
-# sad
 Site voor informatica
