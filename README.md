@@ -1,1 +1,1 @@
-Site voor informatica
+als je dit leest ben je cringe lol
